@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+* Programming
+* Guinea pigs
+* My Abby ❤️
+* Chess
+* * Sicilian Dragon
+* * Endgames
+* * Crazy Tactics
